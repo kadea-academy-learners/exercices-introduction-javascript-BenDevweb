@@ -13,16 +13,16 @@ Il laisse derrière lui :
     2. Marie (vivante)
     3. Alain (décédé), mais ayant laissé deux enfants : Éric et Claire (petits-enfants de Jean MUKUNA)
 
-- Son épouse : Madame MUKUNA (vivante)
+- Son épouse : Madame MUKUNA (vivante) 
 
-- Ses deux parents sont tous décédés
+- Ses deux parents sont tous décédés 
 
-- Deux frères germains :
+- Deux frères germains : 
 
     1. Joseph (vivant)
-    2. Daniel (décédé), mais ayant une fille, Sarah (nièce du défunt)
+    2. Daniel (décédé), mais ayant une fille, Sarah (nièce du défunt) 
 
-- Une tante maternelle, Viviane
+- Une tante maternelle, Viviane 
 
 ## Héritiers et catégories
 
